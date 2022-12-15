@@ -1,8 +1,8 @@
 # piss
 piss
 
-#how to piss
+# how to piss
 go and piss
 
-#thanks for reading
+# thanks for reading
 enjoy your piss
